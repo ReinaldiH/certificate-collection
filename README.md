@@ -19,9 +19,9 @@ Berikut adalah daftar sertifikat dan dokumen profesional saya yang tersimpan di 
 📁 [HR Staff Class PT MSDM](https://drive.google.com/drive/folders/1YjEktja30TT-wuaN_yG0aQsdw8B57THe?usp=share_link)
 
 ### 5. 📚 HR Fundamental Class – Stevland Bridge
-📁 [HR Fundamental Class Stevland Bridge](https://drive.google.com/drive/folders/1YjEktja30TT-wuaN_yG0aQsdw8B57THe?usp=share_link)
+📁 [HR Fundamental Class Stevland Bridge](https://drive.google.com/drive/folders/1WNdk_ITX1Oiao71kQl8bCJgKIn7MLIyc?usp=share_link)
 
 ### 6. 🗣️ English Proficiency Test Certificate
-📁 [English Proficiency Test Certificate](https://drive.google.com/drive/folders/1WNdk_ITX1Oiao71kQl8bCJgKIn7MLIyc?usp=share_link)
+📁 [English Proficiency Test Certificate](https://drive.google.com/drive/folders/13qQcE0Z7C6D3_VMcp7rR_-aoI_H2Toh-?usp=share_link)
 
 ---
